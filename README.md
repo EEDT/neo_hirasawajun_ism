@@ -24,4 +24,5 @@ PNS  CR时期意识形态             社自              新自由             
 所以新平沢巡主义要改变这一切。最后
 
 **¡Viva el progreso!**
+
 **¡Muerte al tradicionalismo!**
